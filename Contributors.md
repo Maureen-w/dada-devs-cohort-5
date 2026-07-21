@@ -5,6 +5,13 @@ X: @yourhandle | LinkedIn: /in/yourhandle | Discord: yourhandle#0000
 
 ---
 
+Lilian Muriithi | @Lil100
+X: @Ley_leane | LinkedIn: /in/lilian-muriithi254 | Discord: super_10425
+
+"I'm here to improve my coding skills, contribute to the community, and gain experience through collaboration."
+
+---
+
 Grace Gathoni Karume
 X: @g_karume29945 | LinkedIn: /in/gathoni-karume | Discord: gathoni_karume
 
@@ -38,3 +45,4 @@ LinkedIn: /in/breattah-okeyo-0693963b1 | Discord: breattah
 X: @_rosewaridi | LinkedIn: /in/rose-njeri-njuguna | Discord: rose_waridi
 
 "_Satoshi must be female._ I don't chase the title — I chase the woman I'm capable of becoming. If my work in Bitcoin open source is honest, consistent and generous, perhaps one day someone will read my code and wonder whether Satoshi was a woman after all😊"
+
