@@ -3,6 +3,8 @@ X: @yourhandle | LinkedIn: /in/yourhandle | Discord: yourhandle#0000
 
 "why I'm here ..."
 
+---
+
 Lilian Muriithi | @Lil100
 X: @Ley_leane | LinkedIn: /in/lilian-muriithi254 | Discord: super_10425
 
